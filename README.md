@@ -3,4 +3,4 @@
 
 可协议、脚本点击、挂回流，懂的来
 
-https://t.me/ringer0910
+https://t.me/nspaceman
